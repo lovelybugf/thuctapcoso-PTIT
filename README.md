@@ -1,2 +1,2 @@
-# Th-c-t-p-c-s--PTIT
+# Thuctapcoso-PTIT
 làm quan với an toàn thông tin
